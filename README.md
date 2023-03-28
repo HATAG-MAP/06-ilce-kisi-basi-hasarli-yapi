@@ -1,0 +1,1 @@
+# 06-ilce-kisi-basi-hasarli-yapi
